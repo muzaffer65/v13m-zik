@@ -1,2 +1,7 @@
-# v13m-zik
-v13 Müzik Botu Created By: Muzaffer Karaman#1361
+BU ALTYAPI MUZAFFER KARAMAN TARAFINDAN HAZIRLANMIŞTIR
+CODE MAKARE SUNCUUSU İÇİN YAPILMIŞTIR 
+ÇALMAK KESİNLİKLE YASAKTIR
+İZİN İLE PAYLAŞABİLİRSİNİZ
+İZİN ALMAK İÇİN 
+[Discord Sunucum](https://discord.gg/DZwGjvnezn)
+İyi Kullanımlar
